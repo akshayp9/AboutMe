@@ -25,6 +25,8 @@
 ## :globe_with_meridians: Connect Me
 ![email](https://cdn.icon-icons.com/icons2/272/PNG/32/Email_30017.png) akshayp67@gmail.com
 
+![Instagram](https://cdn-icons-png.flaticon.com/32/3955/3955024.png) [patilakshayofficial](https://www.instagram.com/patilakshayofficial/) 
+
 ![LinkedIn](https://cdn.icon-icons.com/icons2/805/PNG/32/linkedin_icon-icons.com_65929.png) [patil-akshay](https://www.linkedin.com/in/patil-akshay/)
 
 ![Twitter](https://cdn.icon-icons.com/icons2/122/PNG/32/twitter_socialnetwork_20007.png) [@patilakshay67](https://twitter.com/patilakshay67)
